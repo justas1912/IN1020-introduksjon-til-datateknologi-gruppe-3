@@ -7,3 +7,5 @@ Velkommen til gruppe-giten for gruppe 3🔥🔥\
 **Når?** Tirsdager 12.15-14.00\
 **Hvem?** Justas Baltrukonis - justasb@ifi.uio.no\
 Bare ta kontakt om det er noe!🤩
+
+<img width="1020" height="603" alt="Screenshot 2026-11-10 at 12 54 10" src="https://github.com/user-attachments/assets/4b81e2b1-196e-49f1-83fb-71f47f7c6837" />
